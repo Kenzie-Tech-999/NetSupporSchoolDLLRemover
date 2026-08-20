@@ -1,0 +1,2 @@
+# NetSupporSchoolDLLRemover
+REMOVE THE FUCKING SCHOOL SPYWARE
