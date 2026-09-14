@@ -1,3 +1,5 @@
 # NetSupporSchoolDLLRemover
 REMOVE THE FUCKING SCHOOL SPYWARE
 (I DEVELOP THIS SHIT TOOL IN SCHOOL 🗿)
+
+Go to Release to download
